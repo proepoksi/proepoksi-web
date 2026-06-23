@@ -4,7 +4,7 @@ fabrika otopark depo sevkiyat alanları epoksi poliüretan terrazzo mikrobeton b
 
 Fabrika, otopark, depo ve sevkiyat alanları için profesyonel [epoksi zemin kaplama](https://www.proepoksi.com) poliüretan, terrazzo, mikrobeton ve beton parlatma uygulamaları sunuyoruz.
 
-Poliüretan Zemin Sistemleri:Özellikle spor salonları, hastaneler ve esneklik gerektiren alanlar için yürüyüş konforu sağlayan, çatlama yapmayan poliüretan (PU) kaplama çözümleri sunuyoruz.
+Poliüretan Zemin Sistemleri: Özellikle spor salonları, hastaneler ve esneklik gerektiren alanlar için yürüyüş konforu sağlayan, çatlama yapmayan poliüretan (PU) kaplama çözümleri sunuyoruz.
 
 Terrazzo ve Mikrobeton Uygulamaları: Mimari estetiğin ön planda olduğu alanlar için sınırsız renk ve desen özgürlüğü sunan lüks terrazzo sistemleri ile modern, derzsiz ve minimal tasarımlar için dekoratif mikrobeton uygulamaları gerçekleştirmekteyiz.
 
